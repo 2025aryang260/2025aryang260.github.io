@@ -1,1 +1,0 @@
-# 2025aryang260.github.io
